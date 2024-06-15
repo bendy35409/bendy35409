@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @bendy35409
+- 👋 Hi, I’m @tem tems
 - 👀 I’m interested in games,programming and another stuff
 - 🌱 I’m currently learning how to program
 - 💞️ I’m looking to collaborate on any game, fnf charts.
